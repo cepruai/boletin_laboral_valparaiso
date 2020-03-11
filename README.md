@@ -1,1 +1,1 @@
-# Boletin Laboral Región de Valparaíso
+# Boletín Laboral Región de Valparaíso
